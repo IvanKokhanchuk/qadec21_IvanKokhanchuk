@@ -1,1 +1,0 @@
-# qadec21_IvanKokhanchuk
